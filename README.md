@@ -1,0 +1,1 @@
+# glimpseof_thoughts
